@@ -47,5 +47,5 @@ https://jkbdws.web.app/
 
 ## Support
 
-For support, email mankotia412vishal@gmail.com.
+For support, email meshramsameer74@gmail.com.
 
